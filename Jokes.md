@@ -1,1 +1,2 @@
-A man walked into a bar and said ouch.
+A man walked into a bar and said ouch
+My disastrous grade after 151 midterm....
